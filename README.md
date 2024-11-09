@@ -1,4 +1,6 @@
-![IMG-20241106-WA0001](https://github.com/user-attachments/assets/9f9a8527-3b72-41dd-b70a-be7e358cc6e0)
+bit.ly
+ hack.me 
+ (https://github.com/user-attachments/assets/9f9a8527-3b72-41dd-b70a-be7e358cc6e0)
 - 👋 Hi, I’m @Raheel031600
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
